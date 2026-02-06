@@ -126,8 +126,9 @@
 
 ## 📫 **Contact Me**
 - 📩 Email: **youssefsaber592@gmail.com**
-- 🌐 LinkedIn: **linkedin.com/in/youssef-saber**
-- 🛰 Telegram: **@YourTelegramID**
+- 🌐 LinkedIn: **linkedin.com/in/youssef-saber**youssefsaber592-netizen/SP-XD
+
+
 
 ---
 
