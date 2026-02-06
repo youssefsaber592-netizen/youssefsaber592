@@ -126,7 +126,7 @@
 
 ## 📫 **Contact Me**
 - 📩 Email: **youssefsaber592@gmail.com**
-- 🌐 LinkedIn: **linkedin.com/in/youssef-saber**youssefsaber592-netizen/SP-XD
+- 🌐 LinkedIn: **www.linkedin.com/in/youssef-saber-7b7690286**
 
 
 
